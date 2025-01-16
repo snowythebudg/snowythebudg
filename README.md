@@ -30,5 +30,5 @@ https://en.pronouns.page/@budgiemint
 
 [email 📬](mailto:mintylab@bsdmail.com OR mailto:snowythebudg@gmail.com)
 
-![stmpfp](https://github.com/user-attachments/assets/b4c822b2-cefd-4586-ae39-4ea2d421b67c)
+![Untitled design](https://github.com/user-attachments/assets/c0370f79-e18c-4703-8446-e230d0c4a358)
 

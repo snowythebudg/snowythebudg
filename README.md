@@ -1,16 +1,34 @@
-## Hi there 👋
+### hello!!!
 
-<!--
-**snowythebudg/snowythebudg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+i'm budgiemint, a 16 (almost 17) year old music producer from the slightly cold city of edmonton, i've been producing music for 3 years and developing for 2. if you wanna view info about how i started. head to my organization page @mintexplab for more info!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+coding languages i actually know:
+
+html, 
+css (i know, embarassing right.)
+
+to get in touch with me through social media cause you're scared of emailing or some shit like that, head to my reddit page (https://www.reddit.com/user/SnowyTheOpaline/) or add me on discord @mintybudgie. you can also head to my linktree (https://linktr.ee/mintybudgie) to see all my other socials, buy some merch/music, and check out my other business ventures.
+
+if you want to know the more personal stuff about me, head to my pronouns.page
+https://en.pronouns.page/@budgiemint
+
+
+
+💚🤍💙
+
+🏳️‍🌈🏳️‍🌈🏳️‍🌈
+
+
+
+
+[linkedin 💼](https://linkedin.com/in/budgie)
+
+[twitter 🐦](https://twitter.com/mintybudgie)
+
+[personal site 🌍](https://ebb.l5.ca/)
+
+[email 📬](mailto:mintylab@bsdmail.com OR mailto:snowythebudg@gmail.com)
+
+![stmpfp](https://github.com/user-attachments/assets/b4c822b2-cefd-4586-ae39-4ea2d421b67c)
+

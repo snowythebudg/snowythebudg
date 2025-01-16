@@ -22,13 +22,11 @@ https://en.pronouns.page/@budgiemint
 
 
 
-[linkedin 💼](https://linkedin.com/in/budgie)
+youtube: https://youtube.com/@mintybudgie
 
-[twitter 🐦](https://twitter.com/mintybudgie)
+personal site: https://ebb.l5.ca/
 
-[personal site 🌍](https://ebb.l5.ca/)
-
-[email 📬](mintylab@bsdmail.com OR snowythebudg@gmail.com)
+email: mintylab@bsdmail.com OR snowythebudg@gmail.com
 
 ![Untitled design](https://github.com/user-attachments/assets/c0370f79-e18c-4703-8446-e230d0c4a358)
 

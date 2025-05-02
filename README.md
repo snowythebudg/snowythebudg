@@ -1,7 +1,7 @@
 ### hello!!!
 
 
-i'm budgiemint, a 16 (almost 17) year old music producer from the slightly cold city of edmonton, i've been producing music for 3 years and developing for 2. if you wanna view info about how i started. head to my organization page @mintexplab for more info!
+i'm budgiemint, a 17 year old music producer from the slightly cold city of edmonton, i've been producing music for 3 years and developing for 2. if you wanna view info about how i started. head to my organization page @mintexplab for more info!
 
 coding languages i actually know:
 
@@ -26,7 +26,7 @@ youtube: https://youtube.com/@mintybudgie
 
 personal site: https://ebb.l5.ca/
 
-email: mintylab@bsdmail.com OR snowythebudg@gmail.com
+email: hello@xz1recordings.ca OR snowythebudg@gmail.com
 
-![Untitled design](https://github.com/user-attachments/assets/c0370f79-e18c-4703-8446-e230d0c4a358)
+
 
